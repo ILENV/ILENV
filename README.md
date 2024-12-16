@@ -1,3 +1,3 @@
-### - Just welcome to my github guys
+### Just welcome to my github guys
 
 ---
